@@ -4,7 +4,7 @@ last two years committed to freelancing and engaging in open-source projects.
 I find joy in creating my own products, as it allows me to constantly challenge
 myself and innovate. When I’m not juggling codes, you will find me immersed in
 gaming, listening to music, or pursuing my fascination with calisthenic
-workouts.
+workouts. My A# is A00478456 and my preferred email is novoreorx@gmail.com.
 
 We are together because we are all facing delays in obtaining our visas, which
 has led to our absence from classes. However, we are determined to join the
